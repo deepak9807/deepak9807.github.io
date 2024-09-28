@@ -52,7 +52,7 @@ Wealth Wisp LLP (also referred to as “Company,” “we” or “our”, which
 - Where we receive a valid request or are required to delete your data, we will do so to the extent it is no longer remains personally identifiable. However, we may retain the data in anonymized form to be used for our legitimate business purposes.
  
 
-- Individuals that are interested in exercising one or more of the rights described above can submit a request using the form here  or contact us at qcscloudservices@quantumcs.com  .
+- Individuals that are interested in exercising one or more of the rights described above can submit a request using the form here  or contact us at qcscloudservices@Wealth Wispcs.com  .
  
 
 - A request must: 
@@ -86,7 +86,7 @@ Wealth Wisp LLP (also referred to as “Company,” “we” or “our”, which
 
 ## Cross-Border Transfer Of Personal Information
 
-- We may transfer personal information to other Quantum group companies, suppliers or clients outside your country.   
+- We may transfer personal information to other Wealth Wisp group companies, suppliers or clients outside your country.   
 
  
 

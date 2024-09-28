@@ -1,5 +1,5 @@
 
-                                                              # PRIVACY POLICY
+                                                # PRIVACY POLICY
 
 wealth wisp LLP (also referred to as “Company,” “we” or “our”, which includes our affiliate/group companies) recognizes the importance of maintaining your privacy. This Policy describes how we collect, process and use your information on our products, website and other offline sources. By downloading and using our products, or visiting and/or using our website, you understand and accept that we are a market research and data analytics company conducting market surveys and/or product testing or ideation on behalf of other companies. You have volunteered to participate in these activities and consent to this Privacy Policy.
 
